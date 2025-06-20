@@ -1,6 +1,6 @@
 # hello-world
 A place to practice 
-##A bit about me:
+A bit about me:
 I have 2 beautiful little girls. 💜💜
 I have been with my partner for 13 years 👩‍❤️‍👨
 I work for a major retail chain. Not naming names but, heres a hint: ❤💊
